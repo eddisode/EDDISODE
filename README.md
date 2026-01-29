@@ -12,7 +12,7 @@
     
     
  
-[guestbook](https://baconcola.atabook.org/) [retrospring](https://retrospring.net/@carlgrimes) & [rentry](https://rentry.co/anya-)
+[guestbook](https://lovefool.atabook.org/) [strawpage](https://aubsie.straw.page/) & [rentry](https://rentry.co/allura)
  
   　　　　　　　　  　　　　　　　　
  
