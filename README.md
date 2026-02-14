@@ -15,7 +15,7 @@ me and my pony pals & gals
     
     
  
-[guestbook](https://lovefool.atabook.org/) [strawpage](https://aubsie.straw.page/) & [rentry](https://rentry.co/allura)
+[guestbook](https://lovefool.atabook.org/) [strawpage](https://freeride.straw.page/) & [rentry](https://rentry.co/allura)
  
   　　　　　　　　  　　　　　　　　
  
