@@ -5,9 +5,8 @@
 <div align="center">
 <p align="center">
  <p align="center">
-work in progress
 
-![](https://i.postimg.cc/63dFyCW3/IMG-0634.jpg)
+<img src="https://i.postimg.cc/63dFyCW3/IMG-0634.jpg" style="width: 42%;">
   　　　　　　　　  　　　　　　　　
  
  　　　　　　　　  　　　　　　　　  　　　　　 
